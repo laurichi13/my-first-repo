@@ -23,4 +23,4 @@ I'm a very musical person, my favorite music is **Power Metal** but I also like 
 
 ## Contact 
 
-I'm beginning to use twitter, and this is my account (https://twitter.com/13laurichi).
+I'm beginning to use twitter, and this is my [account](https://twitter.com/13laurichi).
